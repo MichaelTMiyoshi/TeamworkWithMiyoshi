@@ -10,7 +10,7 @@ Teamwork is an important aspect of life.  We need to work in teams whether we ar
 
 The tasks below are designed to get people to know each other and help them decide who they want to be teammates with.  Those students who have worked in teams before know that there are times when one student does the majority of the work and others skate by.  The goal of these tasks is to figure out how to select teammates who will not do this.  Besides, not every assignment in class will be done with teams.  Many things will be done individually.  After all, you need to gain knowledge and develop skills to become adept at anything.
 
-These six tasks are to be done the first two weeks of class.  You will use the first four as the basis for choosing your team.  You will want to prove that you are a good team member and/or a good team leader.  The next to last item is forming teams.  The last item is your first team assignment.
+These six tasks are to be done the first two weeks of class.  You will use the first four as the basis for choosing your team.  You will want to prove that you are a good team member and/or a good team leader.  The next to last item is forming teams.  The last item is your first team assignment.  Note that these last two items are differentiated by the class you are in.
 
 Task | Description
 ---- | -----------
